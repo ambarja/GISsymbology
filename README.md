@@ -1,1 +1,1 @@
-# :rocket: Simbology
+# :rocket: Symbology :rocket:
